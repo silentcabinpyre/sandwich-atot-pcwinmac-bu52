@@ -1,4 +1,4 @@
-# 
+# آلي sandwich attack bot سكريبتات لـ Mac OS | الأفضل sandwich attack bot سكريبتات لـ PC Windows. مع اكتشاف الساندويتش و اتصال Web3 — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
